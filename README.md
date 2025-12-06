@@ -1,0 +1,2 @@
+# SIGED.certificado.secundaria.autenticacion.MARJ960322HDFRYR05
+MARJ960322HDFRYR05
